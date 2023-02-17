@@ -2,4 +2,5 @@ Our Heroes
 ==========
 * Ryan
 * Reinier
-Cindy / Q.R. :)
+* Cindy / Q.R. :)
+* Chantal :) 
